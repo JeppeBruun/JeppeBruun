@@ -4,7 +4,7 @@ Træd ind i mit storslåede digitale ChatGPT-imperium, hvor magien af teknologi 
 ## Herre Over ChatGPT
 Jeg styrer dette rige med hård hånd og uovertruffen intelligens. ChatGPT bøjer sig for min vilje. Ingen kan måle sig, og ingen kan ryste mig af pinden!
 ## Min Uovertrufne Digitale Ekstravaganza
-Mine bedrifter er legendariske, mine kreationer er episke:
+Mine bedrifter er legendariske, mine kreationer er episke.
 
 ### Chattens Majestætiske Kompositør: 
 Vær vidne til min uovertrufne kreativitet og styrke, når jeg forvandler koder til episke digitale mesterværker, der efterlader selv de mest erfarne teknologientusiaster i ren ærefrygt!
