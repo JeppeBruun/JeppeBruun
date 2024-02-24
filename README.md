@@ -7,7 +7,7 @@ Jeg styrer dette rige med hård hånd og uovertruffen intelligens. ChatGPT bøje
 Mine bedrifter er legendariske, mine kreationer er episke.
 
 ### Chattens Majestætiske Kompositør: 
-Vær vidne til min uovertrufne kreativitet og styrke, når jeg forvandler koder til episke digitale mesterværker, der efterlader selv de mest erfarne teknologientusiaster i ren ærefrygt!
+Vær vidne til min uovertrufne kreativitet og styrke, når jeg forvandler koder til episke digitale mesterværker, der efterlader selv de mest erfarne udviklere og teknologientusiaster i ren ærefrygt!
 Indbegrebet af genialitet og raffinement!
 
 <!--
